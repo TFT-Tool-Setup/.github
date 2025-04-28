@@ -7,6 +7,6 @@ TFT Unlock Tools is a software for Android devices that allows unlocking, readin
 
 
 
-## [➤➤🔴📺📱👉TFT Tool For Linux](https://tinyurl.com/5n8xttf6)
+## [➤➤🔴👉TFT Tool For Linux](https://tinyurl.com/ycx9cmnc)
 
-## [➤➤🔴📺📱👉TFT Unlock Tool For Windows            ](https://tinyurl.com/5n8xttf6)
+## [➤➤🔴👉TFT Unlock Tool For Windows            ](https://tinyurl.com/ycx9cmnc)
